@@ -1,5 +1,3 @@
-![me](
-
 # DARIA ZMEEVA
 
 
